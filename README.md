@@ -2,7 +2,7 @@
 Nowhere, There is no easy way, 
 <hr>
 Stop hoping for some easy way out.
-<br>
+<hr>
 Just do everyday.  
-<br>
-Someday you will be up there which every thinks the top.
+<hr>
+Someday you will be up there.
